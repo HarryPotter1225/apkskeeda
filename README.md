@@ -1,1 +1,1 @@
-# apkskeeda
+P.S. Acest thread are si rolul de a limita [numarul de](https://chatgpt.com/c/6790bb11-e5bc-8000-8a45-f89121f209f5) bots care reusesc sa faca automat conturi si sa posteze pe forum. Sa speram ca nu vor invata sa posteze si aici! 
